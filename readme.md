@@ -2,7 +2,7 @@
 
 [Bearded Nod]
 (http://img.pandawhale.com/post-23470-Jeremiah-Johnson-nod-cropped-g-jtcK.gif)
-[![alt text][1]]
+![alt text][1]
 [1]: http://img.pandawhale.com/post-23470-Jeremiah-Johnson-nod-cropped-g-jtcK.gif
 
 [Surprised]
