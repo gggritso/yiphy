@@ -1,4 +1,4 @@
-GIFs
+## GIFs
 
 Bearded Nod
 http://img.pandawhale.com/post-23470-Jeremiah-Johnson-nod-cropped-g-jtcK.gif
