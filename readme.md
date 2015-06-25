@@ -1,7 +1,7 @@
 ## GIFs
 
 [Bearded Nod]
-(http://img.pandawhale.com/post-23470-Jeremiah-Johnson-nod-cropped-g-jtcK.gif))
+(http://img.pandawhale.com/post-23470-Jeremiah-Johnson-nod-cropped-g-jtcK.gif)
 
 [Surprised]
 (http://i.imgur.com/7051hne.gif)
@@ -10,7 +10,7 @@
 (http://i.imgur.com/TzyLQSf.gif)
 
 [Fuck Yeah]
-(http://i.imgur.com/F1a7EhY.jpg
+(http://i.imgur.com/F1a7EhY.jpg)
 
 [Batman Thumbs Up]
 (http://media4.giphy.com/media/5DQdk5oZzNgGc/giphy.gif)
@@ -22,10 +22,10 @@
 (http://media.giphy.com/media/lFWYnWlJtAjyE/giphy-tumblr.gif)
 
 [Techno Viking]
-[(http://media3.giphy.com/media/f4E0TH9flrfuE/giphy.gif)
+(http://media3.giphy.com/media/f4E0TH9flrfuE/giphy.gif)
 
 [Shits on Fire Yo]
-(http://i.imgur.com/LY3JW2J.jpg
+(http://i.imgur.com/LY3JW2J.jpg)
 
 [Mayo Barf]
 (http://media1.giphy.com/media/nTt7GAKThQCuk/giphy.gif)
