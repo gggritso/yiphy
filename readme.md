@@ -1,7 +1,6 @@
 ## GIFs
 
-Bearded Nod
-http://img.pandawhale.com/post-23470-Jeremiah-Johnson-nod-cropped-g-jtcK.gif
+[Bearded Nod](http://img.pandawhale.com/post-23470-Jeremiah-Johnson-nod-cropped-g-jtcK.gif)
 
 Surprised
 http://i.imgur.com/7051hne.gif
