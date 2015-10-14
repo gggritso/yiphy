@@ -87,3 +87,75 @@
 [It's working (not working)]
 (http://i.imgur.com/vJDvPuc.gif)
 
+[Friday Friday]
+(http://media2.giphy.com/media/cL8GWrpkrSuu4/giphy.gif)
+
+[Laugh Away]
+(http://i.imgur.com/h9kS8.gif)
+
+[Coffee Aww]
+(http://media.giphy.com/media/5wWf7HdrVtSstvV7GM0/giphy.gif)
+
+[Homer Fade Away]
+(http://i.imgur.com/Z1eIy.gif)
+
+[Moss Fire Typing]
+(http://media.giphy.com/media/dbtDDSvWErdf2/giphy.gif)
+
+[Which one of us?]
+(http://i.imgur.com/Mrt1QyX.gif)
+
+[Korra Confused]
+(http://i.imgur.com/k7SssM0.gif)
+
+[Tom Cruise What?]
+(http://i.imgur.com/MA3rMjc.gif)
+
+[Timberlake Hold On]
+(https://33.media.tumblr.com/d84344e8cc848accb47a29ec5849869a/tumblr_n1eqnyk4p51r2tuixo1_400.gif)
+
+[MadMax Thumbs Up]
+(http://media3.giphy.com/media/KaF1pDZjnhaU/giphy.gif)
+
+[Amateur Hour?]
+(http://i.imgur.com/ZUdZWXR.gif)
+
+[We're not worthy]
+(http://media.giphy.com/media/iiS84hOJXh1Pq/giphy.gif)
+
+[Julia Roberts Yaaaaaas]
+(http://media.giphy.com/media/SaHSmJ2iDaeNa/giphy.gif)
+
+[Turtle High-Five]
+(http://media3.giphy.com/media/2FazevvcDdyrf1E7C/giphy.gif)
+
+[Eye Roll (Planet of the Apes)]
+(http://i.imgur.com/TMmlKMJ.gif)
+
+[That's dumb. That is dumb.]
+(http://i.imgur.com/KmBHIvs.gif)
+
+[I know, I know, I know]
+(http://i.imgur.com/L1q1skx.gif)
+
+[Nooo. Man.]
+(http://media.giphy.com/media/xkJ967hJt01gI/giphy.gif)
+
+[Whoa! (Kobe)]
+(http://i.imgur.com/Do67i.gif)
+
+[Stephen Colbert Slow Smile]
+(http://i.giphy.com/1438dnZ4AqjKy4.gif)
+
+[Iron Chef Smile]
+(http://stream1.gifsoup.com/view/12954/iron-chef-bite-o.gif)
+
+[Bruce Lee Smirk]
+(https://s-media-cache-ak0.pinimg.com/originals/4e/3f/f0/4e3ff069bd296dc313f35b0ae7a6c36c.gif)
+
+[Cringe Hug Fail]
+(http://media1.giphy.com/media/fCGbauwhbkEik/giphy.gif)
+
+[You Got Me]
+(http://i.imgur.com/FXlTQOt.gif)
+
