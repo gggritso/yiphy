@@ -162,3 +162,21 @@
 [You Got Me]
 (http://i.imgur.com/FXlTQOt.gif)
 
+[Wink Wink (Kawasaki)]
+(http://www.ndp.ca/sites/default/files/2_1.gif)
+
+[Exhale (Disappointed)]
+(http://i.giphy.com/8aYLkCDqldRbq.gif)
+
+[Batmon Nodding]
+(http://media2.giphy.com/media/uNp22kQO4QCxa/giphy.gif)
+
+[Picard Slow Clap]
+(http://www.reactiongifs.us/wp-content/uploads/2013/08/picard_clapping.gif)
+
+[Salute]
+(http://media2.giphy.com/media/11SsiZD0I9x5GU/giphy.gif)
+
+[Groove]
+(http://media2.giphy.com/media/CeZgkMTPwyLwQ/giphy.gif)
+
