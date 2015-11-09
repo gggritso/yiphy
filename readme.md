@@ -180,3 +180,5 @@
 [Groove]
 (http://media2.giphy.com/media/CeZgkMTPwyLwQ/giphy.gif)
 
+[Kong-Sized Headache]
+(http://i.giphy.com/3oEdv9Xaqm76AzUsvu.gif)
